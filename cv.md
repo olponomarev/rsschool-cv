@@ -1,1 +1,1 @@
-# rsschool-cv
+# Oleg Ponomaryov
